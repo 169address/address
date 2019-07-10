@@ -15,7 +15,6 @@ http://x9x2.com <br />
 论坛： <br />
 http://bbs.azsxdc99.com \[推荐！\]<br />
 http://888cay.com<br />
-http://999poy.com<br />
 http://343z.com<br />
 
 种子站：<br />
@@ -23,4 +22,4 @@ http://bt.azsxdc99.com \[推荐！\]<br />
 http://484r.com<br />
 
 撸管宝典：<br />
-http://zxc66.com \[推荐！\]
+http://qaz33.com \[推荐！\]
