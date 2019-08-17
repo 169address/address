@@ -9,15 +9,18 @@ https://a7s7.weebly.com/ <br />
 首页： http://sex169.org (永久地址) 
 
 影城：<br />
+http://video.45ca.com \[推荐！\] <br />
 http://video.azsxdc99.com \[推荐！\] <br />
 http://x9x2.com <br />
 
 论坛： <br />
+http://bbs.45ca.com \[推荐！\]<br />
 http://bbs.azsxdc99.com \[推荐！\]<br />
-http://888cay.com<br />
-http://343z.com<br />
+http://74as.com<br />
+http://47ca.com<br />
 
 种子站：<br />
+http://bt.45ca.com \[推荐！\]<br />
 http://bt.azsxdc99.com \[推荐！\]<br />
 http://484r.com<br />
 
