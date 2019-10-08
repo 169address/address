@@ -12,7 +12,7 @@ https://a7s7.weebly.com/ <br />
 影城：<br />
 http://video.1244.xyz \[推荐！\] <br />
 http://video.azsxdc99.com \[推荐！\] <br />
-http://x9x2.com <br />
+http://1364.xyz<br />
 
 论坛： <br />
 http://bbs.1244.xyz \[推荐！\]<br />
@@ -26,6 +26,7 @@ http://2341.xyz<br />
 http://bt.1244.xyz \[推荐！\]<br />
 http://bt.azsxdc99.com \[推荐！\]<br />
 http://484r.com<br />
+http://1347.xyz<br />
 
 撸管宝典：<br />
 http://qaz33.com \[推荐！\]
