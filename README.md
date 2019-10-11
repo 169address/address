@@ -7,6 +7,9 @@
 https://github.com/169address/address<br />
 https://a7s7.weebly.com/ <br />
 
+Telegram(TG)群：
+https://t.me/@bbs169 <br />
+
 首页： http://sex169.org (永久地址) <br />
 
 影城：<br />
