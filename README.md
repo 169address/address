@@ -12,6 +12,9 @@ https://t.me/@bbs169 <br />
 
 首页： http://sex169.org (永久地址) <br />
 
+撸管宝典：<br />
+http://zxc33.xyz \[推荐！\]
+
 影城：<br />
 http://video.1244.xyz \[推荐！\] <br />
 http://video.azsxdc99.com \[推荐！\] <br />
@@ -30,6 +33,3 @@ http://bt.1244.xyz \[推荐！\]<br />
 http://bt.azsxdc99.com \[推荐！\]<br />
 http://484r.com<br />
 http://1347.xyz<br />
-
-撸管宝典：<br />
-http://zxc33.xyz \[推荐！\]
