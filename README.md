@@ -5,7 +5,6 @@
 
 最新地址发布页：<br />
 https://github.com/169address/address<br />
-https://a7s7.weebly.com/ <br />
 
 Telegram(TG)群：
 https://t.me/@bbs169 <br />
