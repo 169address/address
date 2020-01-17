@@ -31,5 +31,4 @@ http://2341.xyz<br />
 种子站：<br />
 http://bt.1244.xyz \[推荐！\]<br />
 http://bt.azsxdc99.com \[推荐！\]<br />
-http://484r.com<br />
 http://1347.xyz<br />
