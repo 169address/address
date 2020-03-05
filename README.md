@@ -7,7 +7,7 @@
 https://github.com/169address/address<br />
 
 Telegram(TG)群：
-https://t.me/@bbs169 <br />
+https://t.me/bbs169 <br />
 
 首页： http://sex169.org (永久地址) <br />
 
