@@ -22,9 +22,7 @@ http://1364.xyz<br />
 论坛： <br />
 http://bbs.1244.xyz \[推荐！\]<br />
 http://bbs.azsxdc99.com \[推荐！\]<br />
-http://74as.com<br />
 http://2184.xyz<br />
-http://2241.xyz<br />
 http://2341.xyz<br />
 
 种子站：<br />
