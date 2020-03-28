@@ -18,14 +18,20 @@ http://zxc33.xyz \[推荐！\]
 http://video.1244.xyz \[推荐！\] <br />
 http://video.azsxdc99.com \[推荐！\] <br />
 http://1364.xyz<br />
+http://2255.men<br />
 
 论坛： <br />
 http://bbs.1244.xyz \[推荐！\]<br />
 http://bbs.azsxdc99.com \[推荐！\]<br />
 http://2184.xyz<br />
 http://2341.xyz<br />
+http://2266.men<br />
+http://2277.men<br />
+http://2288.men<br />
+http://2299.men<br />
 
 种子站：<br />
 http://bt.1244.xyz \[推荐！\]<br />
 http://bt.azsxdc99.com \[推荐！\]<br />
 http://1347.xyz<br />
+http://1166.men<br />
