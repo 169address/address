@@ -17,7 +17,8 @@ http://zxc33.xyz \[推荐！\]
 影城：<br />
 http://video.1244.xyz \[推荐！\] <br />
 http://video.azsxdc99.com \[推荐！\] <br />
-http://a2u8.com<br />
+http://a8r8.com<br />
+http://a8k4.com<br />
 
 论坛： <br />
 http://bbs.1244.xyz \[推荐！\]<br />
@@ -30,3 +31,4 @@ http://a2v8.com<br />
 http://bt.1244.xyz \[推荐！\]<br />
 http://bt.azsxdc99.com \[推荐！\]<br />
 http://a2v9.com<br />
+http://zv27.com<br />
