@@ -23,7 +23,6 @@ http://a8k4.com<br />
 论坛： <br />
 http://bbs.1244.xyz \[推荐！\]<br />
 http://bbs.azsxdc99.com \[推荐！\]<br />
-http://b2x9.com<br />
 http://b2v9.com<br />
 http://a2v8.com<br />
 
