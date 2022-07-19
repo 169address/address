@@ -31,7 +31,6 @@ http://982r.com<br />
 http://746g.com<br />
 http://746h.com<br />
 http://694n.com<br />
-http://b2v9.com<br />
 http://a2v8.com<br />
 
 种子站：<br />
