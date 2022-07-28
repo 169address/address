@@ -24,13 +24,9 @@ http://a8k4.com<br />
 论坛： <br />
 http://bbs.zxc4444.com \[推荐！\]<br />
 http://bbs.zxc5555.com \[推荐！\]<br />
-http://982n.com<br />
-http://982y.com<br />
-http://982r.com<br />
-http://746g.com<br />
-http://746h.com<br />
-http://694n.com<br />
-http://a2v8.com<br />
+http://924t.com<br />
+http://927r.com<br />
+http://934g.com<br />
 
 种子站：<br />
 http://bt.zxc4444.com \[推荐！\]<br />
