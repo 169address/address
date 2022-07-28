@@ -12,19 +12,18 @@ https://t.me/bbs169 <br />
 首页： http://sex169.org (永久地址) <br />
 
 撸管宝典：<br />
-http://zxc88.xyz \[推荐！\]<br />
-http://zxc44.xyz \[推荐！\]<br />
-http://zxc66.xyz \[推荐！\]<br />
+http://zxc4444.com \[推荐！\]<br />
+http://zxc5555.com \[推荐！\]<br />
 
 影城：<br />
-http://video.1244.xyz \[推荐！\] <br />
-http://video.azsxdc99.com \[推荐！\] <br />
+http://video.zxc4444.com \[推荐！\] <br />
+http://video.zxc5555.com \[推荐！\] <br />
 http://a8r8.com<br />
 http://a8k4.com<br />
 
 论坛： <br />
-http://bbs.1244.xyz \[推荐！\]<br />
-http://bbs.azsxdc99.com \[推荐！\]<br />
+http://bbs.zxc4444.com \[推荐！\]<br />
+http://bbs.zxc5555.com \[推荐！\]<br />
 http://982n.com<br />
 http://982y.com<br />
 http://982r.com<br />
@@ -34,7 +33,7 @@ http://694n.com<br />
 http://a2v8.com<br />
 
 种子站：<br />
-http://bt.1244.xyz \[推荐！\]<br />
-http://bt.azsxdc99.com \[推荐！\]<br />
+http://bt.zxc4444.com \[推荐！\]<br />
+http://bt.zxc5555.com \[推荐！\]<br />
 http://a2v9.com<br />
 http://zv27.com<br />
