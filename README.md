@@ -24,7 +24,6 @@ http://a8k4.com<br />
 论坛： <br />
 http://bbs.zxc4444.com \[推荐！\]<br />
 http://bbs.zxc5555.com \[推荐！\]<br />
-http://875x.com<br />
 http://875u.com<br />
 http://875q.com<br />
 
