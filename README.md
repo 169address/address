@@ -24,8 +24,8 @@ http://a8k4.com<br />
 论坛： <br />
 http://bbs.zxc4444.com \[推荐！\]<br />
 http://bbs.zxc5555.com \[推荐！\]<br />
-http://875u.com<br />
-http://875q.com<br />
+http://607u.com<br />
+http://602r.com<br />
 
 种子站：<br />
 http://bt.zxc4444.com \[推荐！\]<br />
