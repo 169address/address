@@ -30,5 +30,4 @@ http://marketingjl.com<br />
 种子站：<br />
 http://bt.zxc4444.com \[推荐！\]<br />
 http://bt.zxc5555.com \[推荐！\]<br />
-http://a2v9.com<br />
 http://zv27.com<br />
