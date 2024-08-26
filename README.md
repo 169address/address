@@ -18,8 +18,7 @@ http://zxc5555.com \[推荐！\]<br />
 影城：<br />
 http://video.zxc4444.com \[推荐！\] <br />
 http://video.zxc5555.com \[推荐！\] <br />
-http://a8r8.com<br />
-http://a8k4.com<br />
+http://ccnmg.com<br />
 
 论坛： <br />
 http://bbs.zxc4444.com \[推荐！\]<br />
@@ -30,4 +29,4 @@ http://marketingjl.com<br />
 种子站：<br />
 http://bt.zxc4444.com \[推荐！\]<br />
 http://bt.zxc5555.com \[推荐！\]<br />
-http://zv27.com<br />
+http://shnmg.com<br />
