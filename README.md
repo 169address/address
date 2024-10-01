@@ -23,8 +23,9 @@ http://ccnmg.com<br />
 论坛： <br />
 http://bbs.zxc4444.com \[推荐！\]<br />
 http://bbs.zxc5555.com \[推荐！\]<br />
-http://activehlj.com<br />
-http://marketingjl.com<br />
+https://activehlj.com<br />
+https://0222223.com<br />
+https://0333332.com<br />
 
 种子站：<br />
 http://bt.zxc4444.com \[推荐！\]<br />
